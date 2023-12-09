@@ -5,8 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...11111121211
-- 🌱 I’m currently learning ...12321123
+- 🔭 I’m currently working on ...111111212112
+- 🌱 I’m currently learning ...12321123341
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
