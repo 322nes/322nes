@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...111111212112regrberb sd sd 
-- 🌱 I’m currently learning ...123211233414124hgmghmфывафывафыв
+- 🌱 I’m currently learning ...123211233414124hgmghmфывафываячсмячсмячсмфыв
 - 👯 I’m looking to collaborate on ...фывфsfdbsd
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
